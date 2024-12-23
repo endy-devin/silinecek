@@ -1,0 +1,2 @@
+# silinecek
+silicem eğitimde kullanıyorum
